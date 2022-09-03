@@ -1,0 +1,2 @@
+- 👋 Hi, I’m @swarnimsharma001
+- 👀 I’m interested in electronics
